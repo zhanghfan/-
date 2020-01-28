@@ -2,5 +2,5 @@
 
 [日记本点这里](https://github.com/zhanghfan/Diary-p) 
 
-![Image](https://whvn.cc/nr9o27)
+![Image](snow2.jpg)
 
